@@ -1,1 +1,2 @@
-# CIS106-Angelina-Kloczkowski
+# Angelina Kloczkowski
+# dk44749@mail.harpercollege.edu
